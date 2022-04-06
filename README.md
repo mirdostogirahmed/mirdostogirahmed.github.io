@@ -1,1 +1,0 @@
-# mirdostogirahmed.github.io
